@@ -1,0 +1,2 @@
+-  hi, im @nul1ex
+-  you can reach me on discord [@nul1ex]
